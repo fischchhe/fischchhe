@@ -1,4 +1,4 @@
-Welcome to my Git 🧚
+Hi and welcome to my Git 🧚
 
 I'm Christiane [kʁɪsˈti̯aːnə] (but [kʁɪsˈti̯aːna] is okay as well).
 
